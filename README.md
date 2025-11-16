@@ -1,5 +1,2 @@
 # best-repo-ever
-
-quiero jugar repo
-
-tengo sueño
+sigo con sueño y acidez
